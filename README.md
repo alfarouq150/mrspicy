@@ -1,2 +1,2 @@
 # spicy
-this is the github account for practices
+Let's make a Deal 🤝
